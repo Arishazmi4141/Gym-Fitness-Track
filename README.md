@@ -1,1 +1,1 @@
-Live Link 👇🏻 http://arishazmi4141.github.io.gym-fitness-track/
+Live Link 👇🏻 https://arishazmi4141.github.io/Gym-Fitness-Track/
